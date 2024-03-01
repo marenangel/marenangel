@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on structural changes in brain structure after experiencing traumatic events. 
 - 📫 How to reach me maren.a.christensen@uit.no
 - 😄 Pronouns: Miss
-- ⚡ Fun fact: Hates cofee but has worked as a barista for three years
+- ⚡ Fun fact: Hates cofee but has previously worked as a barista for three years
 
 <!---
 marenangel/marenangel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
